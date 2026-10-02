@@ -1,1 +1,1 @@
-# Wow this technique is quite useful
+# tik0526.github.io
